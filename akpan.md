@@ -23,4 +23,3 @@
 [my github account](solomanakpan2011)
 
 Happy to commence learning at Kavinoq Academy.
-
